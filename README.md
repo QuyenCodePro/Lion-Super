@@ -27,3 +27,13 @@ python LionSuper.py
 Box Zalo : https://zalo.me/g/wytmom367 (Thông Báo)
 
 Box Zalo : https://zalo.me/g/rnqijy745 (Chat)
+
+# Luật Khi Xài Tools 
+
+No Attack .gov .edu chinhphu.vn 
+
+Chúng tôi không chịu trách nhiệm :vv
+
+#Thanks You Using LionSuper 
+
+Thanks <3 
